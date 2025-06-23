@@ -1,0 +1,3 @@
+# Automated Summary
+
+Corporate identity number (CIN) of company is Pre-fill U74999KA2016PTC095981. Name of the company is ALUPA FOODS PRIVATE LIMITED. Address of the registered office is DHANYALAXMI RICE MILL, 5-110A, PUTTUR, UDUPI Udupi Karnataka 576105. Email id of the. company is * mail@alupafoods.in. (b) Nature of appointment * is Appointment/Re-appointment in AGM. (f) Period of account for which appointed From is * 01/04/2022. To is 31/03/2027 (DD/MM/YYYY). (g) Number of financial year(s) to which appointment relates is * is 6. S.no.pdf Resolution for appointment of Auditor Signed Intimation Letter Signed. Acceptance signed.pdf Attach. 6. Optional attachment(s): I am authorized by the Board of Directors of the Company vide resolution number *.
